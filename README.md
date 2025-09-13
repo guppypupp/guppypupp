@@ -1,3 +1,3 @@
 # puppy
 
-$${\color{pink}"i   eat   bricks"}$$
+$${\color{blue}" i    like   walls"}$$
