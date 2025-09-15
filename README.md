@@ -35,8 +35,10 @@
 <p align="center">ask if C+H. preferably w2i, i'm very slow 
 <p align="center">DO NOT copy my ponies at all, inspiration is okay, just ask.
 <p align="center">i cannot reach out to people properly (srry)
-<p align="center">PLEASE, iwc always applies, unless if ur an irl friend of mine!
+<p align="center">PLEASE, iwc always applies* unless if ur an irl friend of mine!
 <p align="center">i will not hesitate to block you if you purposely make me uncomfortable.
+
+<p align="center"> *unless if im really talkative and stuff, inte freely! (ill prlly be using the 🎭 thingy when i am)
   
 <p align="center">✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .            
 <p align="center">Thanks for reading!!
