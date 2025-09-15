@@ -7,13 +7,13 @@
   
 <p align="center"> 𝓈𝒽ℯ  -  𝒶𝓃𝓎 𝓅𝓇𝓃𝓈  
 <p align="center"> # 15 𝘺𝘰 # 𝘣𝘳𝘢𝘻𝘪𝘭𝘪𝘢𝘯 # 𝘱𝘢𝘯𝘳𝘰𝘮𝘢𝘯𝘵𝘪𝘤, 𝘢𝘴𝘦𝘹𝘶𝘢𝘭 # 𝘢𝘨𝘦𝘯𝘥𝘦𝘳 #
-<p align="center"># 𝘧𝘪𝘤𝘵𝘪𝘰𝘯𝘬𝘪𝘯 + 𝘵𝘩𝘦𝘳𝘪𝘢𝘯 # 𝘺𝘶𝘮𝘦𝘴𝘩𝘪𝘱𝘱𝘦𝘳 # 𝘐𝘕𝘛𝘑 #
+<p align="center"># 𝘧𝘪𝘤𝘵𝘪𝘰𝘯𝘬𝘪𝘯 + 𝘵𝘩𝘦𝘳𝘪𝘢𝘯 # 𝘈𝘶𝘋𝘏𝘋, 𝘳𝘭𝘭𝘺 𝘣𝘢𝘥 𝘢𝘯𝘹𝘪𝘦𝘵𝘺 # 𝘺𝘶𝘮𝘦𝘴𝘩𝘪𝘱𝘱𝘦𝘳 # 𝘐𝘕𝘛𝘑 #
 
-<p align="center"> bfyi!! i'm very anxious in regards to meeting new people. i only befriend people i know irl, but i am okay with pt friend requests. do NOT ask to chat elsewhere other than pt.
+<p align="center"> bfyi!! i'm very anxious in regards to meeting new people. i only befriend people i know irl, but i am okay with pt friend requests. do NOT ask to chat elsewhere other than pt. sorry if i often seem dry or harsh, i struggle to show much emotion in casual chatting.
 
 <p align="center">⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
 
-<p align="center"> DNI!! basic criteria, radqueers/any supporter of harmful paras (regardless if you are anti contact, dni.), anti otherkin, anti furry, fetishizers, darkshippers, tcoaal, hh + hb, doubles (srry! :<), groomers seriously FUCK OFF
+<p align="center"> DNI!! basic criteria, 13-/18+ radqueers/any supporter of harmful paras (regardless if you are anti contact, dni.), anti otherkin, anti furry, fetishizers, darkshippers, tcoaal, hh + hb, doubles (srry! :<), groomers seriously FUCK OFF
 
 <p align="center">⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆  
 
@@ -32,8 +32,11 @@
 <p align="center">✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
 <p align="center">𝖯ᝪ𝖭𝖸 ΤᝪԜ𝖭 𝖲ΤU𝖥𝖥
 <p align="center">nearly always at docks, often in gtcs, hangouts, mafias, fts
-<p align="center">C+H FREELY (unless if specified not to!). preferably w2i, i'm very slow 
-<p align="center">DO NOT copy my ponies at all, inspiration is okay, just aask!!
-<p align="center">i cannot reach out to people properly, pls int
+<p align="center">ask if C+H. preferably w2i, i'm very slow 
+<p align="center">DO NOT copy my ponies at all, inspiration is okay, just ask.
+<p align="center">i cannot reach out to people properly (srry)
+<p align="center">PLEASE, iwc always applies, unless if ur an irl friend of mine!
+<p align="center">i will not hesitate to block you if you purposely make me uncomfortable.
+  
 <p align="center">✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .            
-<p align="center">anyway thats all i can think of rn. Thanks for reading!!
+<p align="center">Thanks for reading!!
